@@ -1,2 +1,2 @@
 # Hello-World-ArJr
-One day i will be so helpful to every one!
+One day I will be so helpful to every one!
